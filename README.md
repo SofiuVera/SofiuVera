@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SofiuVera
 - 👀 I’m interested in anime
-- 🌱 I’m currently learning papers
+- 🌱 I’m currently reading papers
 - 💞️ I’m looking to collaborate with cats
 - 📫 How to reach me = Running
 
